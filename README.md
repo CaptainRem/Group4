@@ -1,5 +1,5 @@
 # Group4
-- Title: PICSART ALERT (tutorial on editing picture using Picsart )
+- Title: PICSART ALERT (Tutorial on editing picture using Picsart. )
 - Members:
          
          Raymond P. Padsing (Leader)
