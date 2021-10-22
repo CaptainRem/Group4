@@ -1,5 +1,5 @@
 # Group4
-- Title: (hindi pa naka decide pero about one of the culture of kalinga)
+- Title: PICSART ALERT (tutorial on edifing picture using Picsart )
 - Members:
          
          Raymond P. Padsing (Leader)
